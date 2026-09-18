@@ -206,7 +206,7 @@ A organização pode reunir projetos relacionados a:
 
 Nossa presença reúne unidades e operações voltadas à prestação de serviços de Saúde Ocupacional, Segurança do Trabalho, Engenharia e Gestão Ambiental.
 
-**Fortaleza • Belo Horizonte • Contagem**
+**Fortaleza • Belo Horizonte • Contagem • Santos • Praia Grande**
 
 A empresa informa atuação há mais de uma década e presença nas áreas de Medicina do Trabalho, Segurança do Trabalho, Gestão Ambiental e Engenharia.
 
